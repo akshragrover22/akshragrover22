@@ -44,4 +44,4 @@
 ### ✨ Connect with me
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/akshra-grover-5960a92a7)
 
-⭐️ From [akshragrover22](https://github.com/akshragrover22) isko bnake deo bs icons change krdo ache se
+⭐️ From [akshragrover22](https://github.com/akshragrover22) 
